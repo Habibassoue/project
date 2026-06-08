@@ -1,1 +1,1 @@
-Welcom to my repositorie!!
+Welcome to my repositorie!!
